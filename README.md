@@ -9,4 +9,4 @@ Sou Pobre
 
 
 E gosto de jogos
-e sou viado
+
